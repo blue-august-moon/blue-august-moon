@@ -4,7 +4,7 @@
 - 💞️ I don't know yet what I’m looking to collaborate on
 - 📫 How to reach me? Do you need to? 
 - 😄 Pronouns: she/her/hers
-- ⚡ Fun fact: I once won a butt contest, but only because of spite. 
+- ⚡ Fun fact: I can't drive, but I got a perfect score on the verbal portion of the GRE.
 
 <!---
 blue-august-moon/blue-august-moon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
